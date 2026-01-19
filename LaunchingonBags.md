@@ -1,3 +1,6 @@
+<img width="1600" height="900" alt="Untitled design (2)" src="https://github.com/user-attachments/assets/efb13f16-c600-4015-837e-63a76b84749c" />
+
+
 Why NUCORE ELEMENTA Is Launching on Bags.fm
 Embracing the Future of Creator-Centric Token Launches
 
