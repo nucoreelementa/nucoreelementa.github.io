@@ -1,4 +1,4 @@
-# nucoreelementa.github.io
+# Nucore Elementa
 NUCORE ELEMENTA
 <img width="3467" height="1361" alt="with_padding (1)" src="https://github.com/user-attachments/assets/78eb4a12-06cd-4ea4-9762-eb1d0ab08e5f" />
 
